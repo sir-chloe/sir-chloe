@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#c85627}" \space \color{#e08336} If \space \color{#f9d385} your \space \color{#c5b641} life \space \color{#c85627} was \space \color{#e08336} a \space \color{#f9d385} face \color {#c5b641}, \space \color{#c85627} i'd \space \color{#e08336} punch \space \color{#f9d385} it." {}}$
+${\color{#c85627}" \space \color{#e08336} do \space \color{#f9d385} I \space \color{#c5b641} look \space \color{#c85627} like \space \color{#e08336} a \space \color{#f9d385} charity \space \color {#c5b641} service \space \color{#c85627} ? \space " {}}$
  
 <p align=center
 
