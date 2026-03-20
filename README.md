@@ -10,7 +10,7 @@ ${\color{#c85627}" \space \color{#e08336} do \space \color{#f9d385} I \space \co
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=c85627&center=true&vCenter=true&width=435&lines=Cold+hearted+girl;don't+hurt+me+like+this+anymore;I'm+waiting+right+outside+your+door..;saying+"baby+can+we+talk?")](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=c85627&center=true&vCenter=true&width=435&lines=I+was+made+for+lovin'+you+,+baby.;You+were+made+lovin'+mee;I+can't+get+enough+of+you+,+baby)](https://git.io/typing-svg)
 
 <p align=center
 
