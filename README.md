@@ -18,7 +18,7 @@ ${\color{#c85627}" \space \color{#e08336} do \space \color{#f9d385} I \space \co
 
 <p align=center
 
-${\color{#c85627}willow \space \color{#e08336} , \space \color{#f9d385} kaizer/kai/zee \space \color{#c5b641} ✦ \space \color{#c85627} they \space \color{#e08336} / \space \color{#f9d385}her. \space \color{#c5b641}c+h \space \color{#c85627}freely. \space \color{#e08336}✦ \space \color{#f9d385}sign \space \color{#c5b641}atabook. {}}$
+${\color{#c85627}nicolette \space \color{#e08336} , \space \color{#f9d385} kaizer/kai/zee \space \color{#c5b641} ✦ \space \color{#c85627} they \space \color{#e08336} / \space \color{#f9d385}her. \space \color{#c5b641}c+h \space \color{#c85627}freely. \space \color{#e08336}✦ \space \color{#f9d385}sign \space \color{#c5b641}atabook. {}}$
 
 <p align=center
 
