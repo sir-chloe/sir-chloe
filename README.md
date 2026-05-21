@@ -10,7 +10,7 @@ ${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=c85627&center=true&vCenter=true&width=435&lines=I+was+made+for+lovin'+you+,+baby.;You+were+made+lovin'+mee;I+can't+get+enough+of+you+,+baby)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=5273a4&center=true&vCenter=true&width=435&lines=I+was+made+for+lovin'+you+,+baby.;You+were+made+lovin'+mee;I+can't+get+enough+of+you+,+baby)](https://git.io/typing-svg)
 
 <p align=center
 
