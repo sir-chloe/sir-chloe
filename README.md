@@ -14,7 +14,7 @@ ${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Kim_Pine.+++_&color=e08336&style=plastic)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Save_yourself.+++_&color=5273a4&style=plastic)  
 
 <p align=center
 
