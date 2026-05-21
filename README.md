@@ -1,4 +1,4 @@
-![createdbyme](Untitled81_20260521102039.png)
+![createdbyme](Untitled81_20260521125020.png)
 
 <p align=center
 
@@ -46,6 +46,6 @@ ${\textsf{\color{#5273a4} SHOUT OUT TO @peanutsx50 for being my 200th follower! 
 
 ${\textsf{\color{#67bed9} i was @tornmask yeah }}$
 
-![lol](Untitled81_20260521102035.png)
+![lol](Untitled81_20260521125026.png)
 
 
