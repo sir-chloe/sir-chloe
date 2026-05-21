@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#c85627}" \space \color{#e08336} do \space \color{#f9d385} I \space \color{#c5b641} look \space \color{#c85627} like \space \color{#e08336} a \space \color{#f9d385} charity \space \color {#c5b641} service \space \color{#c85627} ? \space " {}}$
+${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color{#dee3e1} pon \color{#5273a4} si \color{#dee3e1} bi  \color{#5273a4} li \color {#67bed9} ty \space \color{#dee3e1} . \space " {}}$
  
 <p align=center
 
@@ -18,33 +18,33 @@ ${\color{#c85627}" \space \color{#e08336} do \space \color{#f9d385} I \space \co
 
 <p align=center
 
-${\color{#c85627}nicolette \space \color{#e08336} , \space \color{#f9d385} kaizer/kai/zee \space \color{#c5b641} ✦ \space \color{#c85627} they \space \color{#e08336} / \space \color{#f9d385}her. \space \color{#c5b641}c+h \space \color{#c85627}freely. \space \color{#e08336}✦ \space \color{#f9d385}sign \space \color{#c5b641}atabook. {}}$
+${\color{#dee3e1}nicolette \space \color{#5273a4} , \space \color{#67bed9} kaizer/kai/zee \space \color{#dee3e1} ✦ \space \color{#5273a4} they \space \color{#67bed9} / \space \color{#dee3e1}her. \space \color{#5273a4}c+h \space \color{#67bed9}freely. \space \color{#dee3e1}✦ \space \color{#5273a4}sign \space \color{#67bed9}atabook. {}}$
 
 <p align=center
 
-${\color{#c85627}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#e08336}⁐⁐⁐⁐⁐⁐⁐⁐\color{#f9d385}⁐⁐⁐⁐⁐⁐⁐) {}}$
+${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐⁐⁐\color{#67bed9}⁐⁐⁐⁐⁐⁐⁐) {}}$
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#c85627}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#e08336}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#f9d385}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#c5b641}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
+━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
 
 <p align=center
 
-${\color{#c85627}best \space \color{#896b59} viewed \space \color{#cdb3a7} on \space \color{#fbf9f7}PC. {}}$
+${\color{#dee3e1}best \space \color{#5273a4} viewed \space \color{#67bed9} on \space \color{#dee3e1}PC. {}}$
 
 <p align=center
 
-  ${\textsf{\color{#e08336}we are PLEASED, to meet you. }}$
+  ${\textsf{\color{#5273a4}we are PLEASED, to meet you. }}$
 
 <p align=center
 
-${\textsf{\color{#f9d385}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
+${\textsf{\color{#67bed9}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align=center
 
-${\textsf{\color{#c5b641} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
+${\textsf{\color{#5273a4} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
 
-${\textsf{\color{#c5b641} i was @tornmask yeah }}$
+${\textsf{\color{#67bed9} i was @tornmask yeah }}$
 
 ![lol](Untitled81_20260521102035.png)
 
