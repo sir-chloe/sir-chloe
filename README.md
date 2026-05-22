@@ -26,7 +26,7 @@ ${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐�
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
+━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　$${\color{#5273a4}✦ {}}$$[strawpage](https://justifiedglory.straw.page/)　━
 
 <p align=center
 
