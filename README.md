@@ -1,4 +1,4 @@
-![createdbyme](Untitled81_20260521125020.png)
+![createdbyme](Untitled121_20260620161603.png)
 
 <p align=center
 
@@ -6,7 +6,7 @@ ${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color
  
 <p align=center
 
-![byme](created-by-me_2.gif) 
+![byme](ezgif-5c0ccfc57648e06b.gif) 
 
 <p align=center
 
@@ -46,6 +46,6 @@ ${\textsf{\color{#5273a4} SHOUT OUT TO @peanutsx50 for being my 200th follower! 
 
 ${\textsf{\color{#67bed9} i was @tornmask yeah }}$
 
-![lol](Untitled81_20260521125026.png)
+![lol](Untitled121_20260620161559.png)
 
 
