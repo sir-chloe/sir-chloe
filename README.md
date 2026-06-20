@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color{#dee3e1} pon \color{#5273a4} si \color{#dee3e1} bi  \color{#5273a4} li \color {#67bed9} ty \space \color{#dee3e1} . \space " {}}$
+${\color{#dee3e1}" \space \color{#5273a4} let's \space \color{#67bed9} ta \color{#dee3e1} ke \space \color{#5273a4} a \space \color{#dee3e1} re  \color{#5273a4} st \color {#67bed9} . \space \color{#dee3e1} "  {}}$
  
 <p align=center
 
@@ -26,7 +26,7 @@ ${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐�
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards) $${\color{#5273a4}✦ {}}$$[strawpage](https://justifiedglory.straw.page/) $${\color{#67bed9}✦ {}}$$[fan-town](https://github.com/fan-town)　━
+━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards) $${\color{#5273a4}✦ {}}$$[strawpage](https://justifiedglory.straw.page/) $${\color{#67bed9}✦ {}}$$[fan-town](https://github.com/fan-town) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/title-town)　━
 
 <p align=center
 
