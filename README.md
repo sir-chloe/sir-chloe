@@ -6,7 +6,7 @@ ${\color{#dee3e1}" \space \color{#5273a4} take \space \color{#67bed9} res \color
  
 <p align=center
 
-![byme](ezgif-5c0ccfc57648e06b.gif) 
+![byme](ezgif-10191c52cad6229e.gif) 
 
 <p align=center
 
