@@ -26,7 +26,7 @@ ${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐�
 
 <p align=center
 
- [![hi](Untitled152_20260710194103.png)](https://fallenking.atabook.org/)
+ [![hi](Untitled152_20260710205749.png)](https://fallenking.atabook.org/)             [![byme](Untitled152_20260710205759.png)](https://guns.lol/tornmask)
 
 <p align=center
 
