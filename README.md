@@ -27,9 +27,8 @@ ${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐�
 <p align=center
 
  [![hi](Untitled152_20260710205749.png)](https://fallenking.atabook.org/)             [![byme](Untitled152_20260710205759.png)](https://guns.lol/tornmask) [![byme3](Untitled152_20260710210524.png)](https://tornmaskk.carrd.co/) [![4](Untitled152_20260710211045.png)](https://github.com/pt-awards) [![5](Untitled152_20260710211152.png)](https://github.com/title-town)
- [![6](Untitled152_20260710211304.png)](https://github.com/fan-town) [![7](Untitled152_20260710211544.png)](https://github.com/pt-players)
+ [![6](Untitled152_20260710211304.png)](https://github.com/fan-town) [![7](Untitled152_20260710211544.png)](https://github.com/pt-players) [![8](Untitled152_20260710213341.png)](https://rentry.co/angelicappearance) [![9](Untitled152_20260710213516.png)](https://rentry.co/artoverview)
  
-[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards) $${\color{#5273a4}✦ {}}$$[strawpage](https://justifiedglory.straw.page/) $${\color{#67bed9}✦ {}}$$[fan-town](https://github.com/fan-town) $${\color{#dee3e1}✦ {}}$$ [title-town](https://github.com/title-town)　$${\color{#5273a4}✦ {}}$$ [art-overview](https://rentry.co/artoverview)
 <p align=center
 
 ${\color{#dee3e1}best \space \color{#5273a4} viewed \space \color{#67bed9} on \space \color{#dee3e1}PC. {}}$
