@@ -1,4 +1,4 @@
-![createdbyme](Untitled121_20260620161603.png)
+![createdbyme](Untitled153_20260710195040.png)
 
 <p align=center
 
@@ -6,7 +6,7 @@ ${\color{#dee3e1}" \space \color{#5273a4} let's \space \color{#67bed9} ta \color
  
 <p align=center
 
-![byme](ezgif-10191c52cad6229e.gif) 
+![byme](ezgif-3efbf45f56d228e9.gif) 
 
 <p align=center
 
@@ -26,7 +26,7 @@ ${\color{#dee3e1}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#5273a4}⁐⁐⁐⁐⁐⁐�
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#dee3e1}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#5273a4}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#67bed9}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#dee3e1}✦ {}}$$ [pt-awards](https://github.com/pt-awards) $${\color{#5273a4}✦ {}}$$[strawpage](https://justifiedglory.straw.page/) $${\color{#67bed9}✦ {}}$$[fan-town](https://github.com/fan-town) $${\color{#dee3e1}✦ {}}$$ [title-town](https://github.com/title-town)　$${\color{#5273a4}✦ {}}$$[art-overview](https://rentry.co/artoverview)━
+━　   ━
 
 <p align=center
 
@@ -46,6 +46,6 @@ ${\textsf{\color{#5273a4} SHOUT OUT TO @peanutsx50 for being my 200th follower! 
 
 ${\textsf{\color{#67bed9} i was @tornmask yeah }}$
 
-![lol](Untitled121_20260620161559.png)
+![lol](Untitled153_20260710195226.png)
 
 
