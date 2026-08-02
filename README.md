@@ -10,10 +10,6 @@ ${\color{#dee3e1}" \space \color{#5273a4} let's \space \color{#67bed9} ta \color
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=5273a4&center=true&vCenter=true&width=435&lines=I+was+made+for+lovin'+you+,+baby.;You+were+made+lovin'+mee;I+can't+get+enough+of+you+,+baby)](https://git.io/typing-svg)
-
-<p align=center
-
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Save_yourself.+++_&color=5273a4&style=plastic)  
 
 <p align=center
